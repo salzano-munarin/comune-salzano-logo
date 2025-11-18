@@ -27,5 +27,5 @@ Ogni utilizzo non previsto nel presente documento deve essere autorizzato dal Co
 
 ## Contatti
 Per richiedere autorizzazioni o materiali aggiuntivi:  
-info@comune.salzano.ve.it**
+info@comune.salzano.ve.it
 
